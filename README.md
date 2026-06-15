@@ -1,1 +1,0 @@
-# nuralasma.github.io
